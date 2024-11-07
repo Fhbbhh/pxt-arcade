@@ -1,7 +1,7 @@
 # Lessons
 
 
-## Getting started
+## Getting started for muting gays
 
 ```codecard
 [
